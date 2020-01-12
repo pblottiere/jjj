@@ -3,7 +3,8 @@
 ### 2019
 
 - Triangle: https://www.espritjjb.com/technique-clef-triangle-jujitsu
--
+- Gardes et position de contrôle: https://www.espritjjb.com/positions-fondamentales-en-jjb
+- Ouverture de garde fermée et passage de garde: https://www.youtube.com/watch?v=xWVFTvOd62g
 
 ### 06/01/2020
 
